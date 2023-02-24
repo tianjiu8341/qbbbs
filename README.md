@@ -8,6 +8,10 @@
 
 - https://qbbbs.buzz 曲罢论坛
 
+- https://qbbbs.gay 曲罢论坛
+
+- https://qbbbs.wtf 曲罢论坛
+
 - https://qbbbs.tk 曲罢论坛
 
 - https://qbbbs.ml 曲罢论坛
