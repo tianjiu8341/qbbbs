@@ -2,9 +2,11 @@
 
 ## 永久网址发布（加入收藏夹，永不迷路）
 
-- https://qbbbs.top
+- https://qblbbs.com
 
 ## 备用网址
+
+- https://qbbbs.top曲罢论坛
 
 - https://qbbbs.buzz 曲罢论坛
 
