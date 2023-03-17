@@ -6,7 +6,7 @@
 
 ## 备用网址
 
-- https://qbbbs.top曲罢论坛
+- https://qbbbs.top 曲罢论坛
 
 - https://qbbbs.buzz 曲罢论坛
 
